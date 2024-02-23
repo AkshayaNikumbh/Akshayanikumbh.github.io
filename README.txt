@@ -1,1 +1,1 @@
-Akshaya Nikumbh Lab's website
+Lab website
